@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Merilynka, slovak girl from Serbia.
 - 👀 I’m interested in salsa dance and beautiful architecture.
-- beautiful castles in Slovakia https://www.daibau.sk/casopis/architekti_architektura
+- Beautiful castles in Slovakia https://www.daibau.sk/casopis/architekti_architektura
 - Let’s Salsa! https://www.steezy.co/posts/lets-salsa-learn-salsa-dance-history
 
 <!---
